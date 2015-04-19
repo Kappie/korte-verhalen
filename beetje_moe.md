@@ -1,3 +1,7 @@
+---
+title: Beetje moe
+---
+
 
 Ik heb een halve fles wijn die een week open staat. Nog een halfuur voordat ik naar het volgende feestje ga. En elke ochtend om zeven uur op. Een man met wallen.
 
