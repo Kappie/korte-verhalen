@@ -1,3 +1,7 @@
+---
+title: Het laatste kopje thee
+---
+
 Er is iets met meisjes die cello spelen. Ze zijn sexy. Ze doen wat ze willen. 
 
 Ik leerde Livia kennen op een feestje. We waren allebei vroeg, raakten aan de praat. Ik maakte een fles rode wijn open. 
@@ -39,15 +43,3 @@ Ik pak mijn gitaar. Een liedje voor een publiek van één. Ik word opeens zenuwa
 "Zoiets, dus", zeg ik.
 
 "Je hebt een country-croon", zegt ze. "Mooi." Ze zet de cello tussen haar benen. "Ik ben nog niet zo goed, hoor. Ik speelde vroeger piano." Ze speelt een paar noten. Mijn studentenkamer is klein. Vier muren en weinig spullen. Het geluid vult de hele ruimte.
-
-Het cellostuk is lastig, ze komt er niet in één keer uit. We kijken elkaar aan.
-
-"Thuis even rustig oefenen", zeg ik.
-
-"Ja", zegt ze. "Heb je al eens op een cello gespeeld?"
-
-"Nee."
-
-"Dit is je kans."
-
-Ik ga naast haar op bed zitten. Voorzichtig pak ik de cello van haar over. Ik leg mijn linkerhand op de hals. Het voelt vertrouwd. Als een gitaar, alleen de snaren zijn wat dikker. Ik weet niet wat ik met de strijkstok aan moet. De eerste paar keer is kattengejank, maar dan krijg ik een aangenaam gebrom uit de cello.
