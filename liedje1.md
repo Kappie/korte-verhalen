@@ -10,14 +10,37 @@ de zon in je ogen
 
 
 
-het gaat niet goed
-dat was gelogen
-de bieb is leeg
-de bel op de balie is verbogen
+
+
+
+
+je vertelt me van je dromen
+je moet huilen
+je doet niet echt moeite
+je voor me te verschuilen
 
 waarom ben je
 terug gekomen?
 waarom, baby blue
 ben je zo open?
+
+
+
+
+
+
+
+we huilen samen
+om het leven
+maar het lucht niet op
+je kunt niks geven
+
+we huilen samen
+om het leven
+het wordt donker
+en de klok slaat negen
+
+ik kan je pijn niet stoppen
+geloof me
 
 

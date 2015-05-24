@@ -1,5 +1,5 @@
 ---
-title: Het laatste kopje thee
+title: Laatste kopje thee
 ---
 
 Er is iets met meisjes die cello spelen. Ze zijn sexy. Ze doen wat ze willen. 
@@ -8,7 +8,7 @@ Ik leerde Livia kennen op een feestje. We waren allebei vroeg, raakten aan de pr
 
 "Je komt niet uit Amsterdam", zei ik.
 
-"Je bent de eerste sinds een tijd die dat merkt. Ik voel me soms net een randstedeling."
+"Je bent de eerste sinds een tijd die dat merkt. Ik voel me soms net een randstedeling", zei ze.
 
 "Maastricht?"
 
@@ -36,7 +36,7 @@ Ik liet er een week overheen gaan. Toen sprak ik haar op facebook.
 
 Ze heeft een donkerblauw jurkje aan en een zwarte panty. Ze pakt haar cello uit. Ik schuif een stoel naar het midden van de kamer.
 
-"Nee, die is veel te hoog", zegt ze. Ze gaat op de rand van mijn bed zitten. "Ik wil het wel eens horen."
+"Nee, die is veel te hoog", zegt ze. Ze gaat op de rand van mijn bed zitten. "Ik wil dat nummer wel eens horen."
 
 Ik pak mijn gitaar. Een liedje voor een publiek van één. Ik word opeens zenuwachtig. Ik sla wat akkoorden aan en begin te zingen. Halverwege vergeet ik de tekst.
 

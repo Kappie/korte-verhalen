@@ -4,9 +4,7 @@ title: Baby Blue
 
 Zou ze veranderd zijn? Ze had altijd een rokje aan. Precies mijn type. Of misschien houd ik van rokjes dankzij haar.
 
-Ze is dapperder dan ik. Ze vroeg hoe het met me ging, na al die tijd. Of ik zin had om te lunchen.
-
-Bij de Ysbreeker, zei ik.
+Ze is dapperder dan ik. Ze vroeg hoe het met me ging, na al die tijd. Of ik zin had om te lunchen. Bij de Ysbreeker, zei ik.
 
 Ik weet niet meer wie ik toen was. Misschien kan zij het me vertellen.
 
@@ -16,7 +14,7 @@ Ik weet niet meer wie ik toen was. Misschien kan zij het me vertellen.
 
 "Hoe gaat het?" vraagt ze.
 
-"Goed", zeg ik. Leugentje.
+"Goed", zeg ik.
 
 We klikken nog. Natuurlijk. Ze geeft les, ze maakt muziek. Ze is vrolijk.
 
@@ -28,7 +26,7 @@ We klikken nog. Natuurlijk. Ze geeft les, ze maakt muziek. Ze is vrolijk.
 
 "Kwartiertje."
 
-"Laten we een stukje wandelen. De Weesperzij op en af." De tijd dat we handjes vasthielden is voorbij. Ik raak haar rug aan om te laten weten waar we heen lopen. Dat is gebleven. We komen bij de fietsen, en ik zeg het maar gewoon.
+"Laten we een stukje wandelen. De Weesperzij op en af." De tijd dat we handjes vasthielden is voorbij. Ik raak haar rug aan om te laten weten waar we heen lopen. Dat is gebleven. We komen bij de fietsen.
 
 "Heb je zin om nog een keer af te spreken? Een date, bedoel ik."
 
