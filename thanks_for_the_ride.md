@@ -2,7 +2,7 @@
 title: Thanks for the ride
 ---
 
-Ze draait zich om. Ze heeft zwart, golvend haar. Onze brillen liggen op het nachtkastje. Ze heeft een lekker bed.
+Ze draait zich om. Haar haar is lang en zwart, het golft. Ze heeft een lekker bed. Blauw beddengoed. 
 
 "Zal ik het licht uit doen?" vraagt ze.
 
@@ -18,7 +18,7 @@ Ze doet het licht uit. Ik zie het scherm van haar telefoon. Ze klikt op '+1 pers
 
 "Slaap lekker."
 
-Na een paar minuten laat ik haar hand los. Er komt veel licht van straatlantaarns de kamer binnen. Ik kijk naar haar boekenkast vol met boeken van Anna Enquist. Er hangt een schilderij van een filosoof aan de muur, maar ik ben vergeten hoe hij heet.
+Na een paar minuten laat ik haar hand los. Er komt veel licht van straatlantaarns de kamer binnen. Ik kijk naar haar boekenkast vol boeken van Anna Enquist. Er hangt een schilderij van een filosoof aan de muur, maar ik ben vergeten hoe hij heet.
 
 "Hém zul je nooit overtreffen", zei ze vanavond. "Hij blijft altijd de man van mijn leven." Ze keek me ondeugend aan.
 
@@ -26,8 +26,8 @@ Na een paar minuten laat ik haar hand los. Er komt veel licht van straatlantaarn
 
 "Ik moet morgen om zes uur op. Ik wil hardlopen en daarna moet ik een werkcollege voorbereiden", zei ze.
 
-"Zal ik gaan?"
+"Zal ik naar huis gaan?"
 
 "Nee, blijf nog maar even."
 
-Ik heb het warm, ik ga op de deken liggen. Ik luister. Ze slaapt. Ik zou willen dat ze morgen om zes uur wakker werd en me vertelde wat ze gedroomd had, zonder elk detail te duiden. Dat ze koffie voor ons zette, haar hardloopschema in de prullenbak gooide, en terug in bed kwam. Dat ze een boek van Bukowski opensloeg.
+Ik heb het warm, ik ga op de deken liggen. Ik luister naar haar ademhaling. Ze slaapt. Ik zou willen dat ze morgen om zes uur wakker werd en me vertelde wat ze gedroomd had, zonder elk detail te duiden. Dat ze koffie zette, haar hardloopschema in de prullenbak gooide, en terug in bed kwam. Dat ze een boek van Bukowski opensloeg.

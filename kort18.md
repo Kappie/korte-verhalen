@@ -1,6 +1,6 @@
--- 
+---
 title: Your sons and your daughters, beyond your command
---
+---
 
 "Je hebt geen focus", zegt hij. "Het leven is een lange treinrit. Als je
 jong bent, komen er voortdurend mooie stationnetjes voorbij. Naarmate je
@@ -24,17 +24,6 @@ zo'n jongen die denkt dat hij alles kan', zeiden ze."
 
 "Ik wil die studie doen omdat de vakken me leuk lijken."
 
-"Maar dat zet je niet in een brief."
-
-"Moet ik schrijven dat ik op mijn zestiende al wist dat ik logicus wilde
-worden?"
-
-"Het is een slechte brief. Punt. Anders hadden ze je wel toegelaten."
-
-"Luister", zegt hij, "toen je zei dat je wilde doorstuderen om in je
-studentenkamer te kunnen blijven wonen, dacht ik 'wat beweegt die jongen
-eigenlijk?'"
-
-"Dat staat er ook niet in."
+"Maar dat zet je niet in een brief", zegt hij. "Toen je zei dat je wilde doorstuderen om in je studentenkamer te kunnen blijven wonen, dacht ik 'wat beweegt die jongen eigenlijk?'"
 
 

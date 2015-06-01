@@ -34,7 +34,7 @@ Ze heeft een donkerblauw jurkje aan en een zwarte panty. Ze pakt haar cello uit.
 
 "Nee, die is veel te hoog", zegt ze. Ze gaat op de rand van mijn bed zitten. "Ik wil het wel eens horen."
 
-Ik pak mijn gitaar. Een liedje voor een publiek van één. Ik word opeens zenuwachtig. Ik sla wat akkoorden aan en begin te zingen. Halverwege vergeet ik de tekst.
+Ik pak mijn gitaar. Een liedje voor een publiek van één. Ik sla wat akkoorden aan en begin te zingen. Halverwege vergeet ik de tekst.
 
 "Zoiets, dus", zeg ik.
 

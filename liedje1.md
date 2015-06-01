@@ -10,14 +10,31 @@ de zon in je ogen
 
 
 
-
-
-
-
 je vertelt me van je dromen
-je moet huilen
-je doet niet echt moeite
-je voor me te verschuilen
+en ik zie ze
+je duwt ze niet in hokjes
+van ambitie of van visie
+
+waarom ben je
+terug gekomen?
+waarom, baby blue
+ben je zo open?
+
+
+
+refr.
+
+
+
+
+
+
+
+
+ik wil geen film zien
+ik wil slapen
+het is geen zomer, het wordt koud
+ik zie je gapen
 
 waarom ben je
 terug gekomen?
@@ -28,6 +45,12 @@ ben je zo open?
 
 
 
+
+
+je vertelt me van je dromen
+je moet huilen
+je doet niet echt moeite
+je voor me te verschuilen
 
 
 we huilen samen
