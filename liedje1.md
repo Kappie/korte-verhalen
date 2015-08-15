@@ -8,6 +8,13 @@ een stukje lopen
 de weesperzij op en af
 de zon in je ogen
 
+refrein:
+
+je wilt weer terug 
+naar het gras en de lucht
+naar de schommel in de zon
+en de troep op het balkon
+
 
 
 je vertelt me van je dromen
@@ -15,17 +22,29 @@ en ik zie ze
 je duwt ze niet in hokjes
 van ambitie of van visie
 
-waarom ben je
+waarom ben je 
 terug gekomen?
-waarom, baby blue
+waarom
 ben je zo open?
-
-
 
 refr.
 
 
 
+je slaat nooit woorden over
+als we zingen
+je praat met je ogen
+je 
+
+
+je moet niet te veel denken
+je moet zitten
+
+
+waarom ben je
+terug gekomen?
+waarom, baby blue
+ben je zo open?
 
 
 
